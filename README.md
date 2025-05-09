@@ -1,0 +1,1 @@
+You are a character and you have to defeat all the enemies, the game is a First Person Shooter. And get the maximum possible eliminations! You have a wide variety of weapons and characters and many maps to have fun. Multiplayer mode to play with friends is also available. Thanks You
